@@ -1,1 +1,1 @@
-<img src="https://zupimages.net/up/20/36/73fl.png" />
+<img src="https://zupimages.net/up/20/46/tfq1.png" />
